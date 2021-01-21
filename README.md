@@ -1,0 +1,2 @@
+# Epitech_MSc_Pro_Semester_7_BizDays_Teamwork_and_Communication
+Exploration various aspects of teamwork, leadership and communication
